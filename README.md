@@ -1,2 +1,2 @@
 # ADOBE-ILLUSTRATION-
-started learning vector potraits
+MY first self taught vector potrait.
