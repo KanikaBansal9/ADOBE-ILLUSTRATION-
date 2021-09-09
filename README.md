@@ -1,2 +1,2 @@
 # ADOBE-ILLUSTRATION-
-MY first self taught vector potrait.
+MY first self taught vector portrait.
